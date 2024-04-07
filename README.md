@@ -1,0 +1,11 @@
+- I joined for 2 minutes, disappeared for 2 months.
+  
+- Brazilian.
+- 
+- Never on Brazilian serv btw.
+- 
+- Whisper to interact with, i am always afk.
+- 
+- I don't really care if u copy my skins.
+- 
+- I'll make fun of you a lot if you do.
